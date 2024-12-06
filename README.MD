@@ -1,1 +1,1 @@
-aplikasi mywebb adalah perangkar lunak
+aplikasi mywabbapp adalah perangkar lunak
